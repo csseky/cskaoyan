@@ -1,10 +1,6 @@
 # cskaoyan
 提供计算机和软件工程专业的各个学校 考研初试真题
 
-[![GPL Licence](https://badges.frapsoft.com/os/gpl/gpl.svg?v=103)](https://opensource.org/licenses/GPL-3.0/) 
-[![微信公众号](https://img.shields.io/badge/微信公众号-计算机与软件考研-orange.svg)](https://mp.weixin.qq.com/s/XEDNu1HqqY8QKWlSZS4fpA) 
-[![知乎](https://img.shields.io/badge/知乎-计算机与软件考研-blue.svg)](https://www.zhihu.com/people/csseky/)  
-
 正在更新中，如果有真题想要分享，可以联系CSSEKY@qq.com
 
 ### 目前有的学校
@@ -82,10 +78,12 @@
 * 北京大学 801  
 [2017回忆版](北京大学/801/北京大学-907-2017-真题回忆版.pdf) 
 [2018回忆版](北京大学/801/北京大学-911-2018-真题回忆版.pdf)
+[2019回忆版](北京大学/801/北京大学-801-2019-真题回忆版.pdf)
 * 北京大学 867  
 [2016回忆版](北京大学/867/北京大学-831-2016-真题回忆版.pdf) 
 [2017回忆版](北京大学/867/北京大学-831-2017-真题回忆版.pdf) 
 [2018回忆版](北京大学/867/北京大学-822-2018-真题回忆版.pdf)
+[2019回忆版](北京大学/867/北京大学-867-2019-真题回忆版.pdf)
 
 #### 浙江大学
 * 浙江大学 878  
