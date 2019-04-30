@@ -5,7 +5,12 @@
 [![微信公众号](https://img.shields.io/badge/微信公众号-计算机与软件考研-orange.svg)](https://mp.weixin.qq.com/s/XEDNu1HqqY8QKWlSZS4fpA) 
 [![知乎](https://img.shields.io/badge/知乎-计算机与软件考研-blue.svg)](https://www.zhihu.com/people/csseky/)   
 
-正在更新中，如果有真题想要分享，可以联系CSSEKY@qq.com
+正在更新中，如果有真题想要分享，可以联系CSSEKY@qq.com  
+
+[【致谢名单】](Acknowledgement.md)  
+链接中提供了一些真题来源地址和一些提供真题的同学信息。  
+非常感谢提供真题的同学，你们做出了很大的贡献。  
+当然最应该感谢的是各个大学的老师们。
 
 ### 目前有的学校
 * [联考408](#联考408)
