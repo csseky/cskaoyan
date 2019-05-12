@@ -12,7 +12,7 @@
 
 #### 清华大学
 * 812 2019年 回忆版  
-[帖子链接](http://www.cskaoyan.com/thread-652675-1-1.html) 
+[网址链接](http://www.cskaoyan.com/thread-652675-1-1.html) 
 * 814 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652609-1-2.html) 
 
@@ -20,12 +20,16 @@
 * 837 2019年 回忆版  
 [@guoJohnny](https://github.com/guoJohnny)  
 [哈尔滨工业大学考研 网络与空间安全 837 初试资料库](https://github.com/guoJohnny/-837-)  
-[帖子链接](http://www.cskaoyan.com/thread-652587-1-1.html)
+[网址链接](http://www.cskaoyan.com/thread-652587-1-1.html)
 
 #### 华中科技大学
 * 887 2019年 回忆版  
-[帖子链接](http://www.cskaoyan.com/thread-652653-1-2.html) 
+[网址链接](http://www.cskaoyan.com/thread-652653-1-2.html) 
 
 #### 华东师范大学
 * 825 2019年 回忆版  
 [网址链接](http://825.malic.xyz/2019/) 
+
+#### 四川大学
+* 874 2015-2018年  
+[网址链接](http://www.cskaoyan.com/thread-654270-1-1.html) 
