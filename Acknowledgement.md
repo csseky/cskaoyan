@@ -33,3 +33,13 @@
 #### 四川大学
 * 874 2015-2018年  
 [网址链接](http://www.cskaoyan.com/thread-654270-1-1.html) 
+
+#### 湖南大学
+* 829 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652611-1-1.html) 
+* 866 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652660-1-1.html) 
+
+#### 中南大学
+* 943 2015年-2018年  
+[网址链接](http://www.cskaoyan.com/thread-653511-1-1.html) 
