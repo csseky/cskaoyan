@@ -48,3 +48,8 @@
 * 913 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652681-1-1.html)
 
+#### 武汉理工大学
+* 852 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-654572-1-1.html)
+* 852 2010年-2015年   
+[网址链接](http://www.cskaoyan.com/thread-639392-1-1.html)
