@@ -53,3 +53,10 @@
 [网址链接](http://www.cskaoyan.com/thread-654572-1-1.html)
 * 852 2010年-2015年   
 [网址链接](http://www.cskaoyan.com/thread-639392-1-1.html)
+
+#### 东北大学
+* 842 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652626-1-1.html)  
+* 858 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652743-1-2.html)  
+
