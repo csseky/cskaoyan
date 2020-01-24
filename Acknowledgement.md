@@ -11,10 +11,14 @@
 ### 致谢列表
 
 #### 清华大学
-* 812 2019年 回忆版  
+* 912 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652675-1-1.html) 
-* 814 2019年 回忆版  
+* 912 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658368-1-1.html) 
+* 914 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652609-1-2.html) 
+* 914 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658378-1-1.html) 
 
 #### 哈尔滨工业大学
 * 837 2019年 回忆版  
