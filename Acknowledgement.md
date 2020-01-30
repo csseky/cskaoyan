@@ -46,6 +46,12 @@
 * 874 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658397-1-1.html) 
 
+#### 重庆大学
+* 877 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658404-1-1.html) 
+* 917 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658405-1-1.html) 
+
 #### 湖南大学
 * 829 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652611-1-1.html) 
