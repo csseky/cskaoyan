@@ -65,6 +65,8 @@
 #### 中南大学
 * 943 2015年-2018年  
 [网址链接](http://www.cskaoyan.com/thread-653511-1-1.html) 
+* 943 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658560-1-1.html) 
 
 #### 上海大学
 * 913 2019年 回忆版  
