@@ -26,11 +26,13 @@
 * 869 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658414-1-3.html) 
 
-#### 哈尔滨工业大学
+#### 哈尔滨工业大学 
 * 837 2019年 回忆版  
 [@guoJohnny](https://github.com/guoJohnny)  
 [哈尔滨工业大学考研 网络与空间安全 837 初试资料库](https://github.com/guoJohnny/-837-)  
-[网址链接](http://www.cskaoyan.com/thread-652587-1-1.html)
+[网址链接](http://www.cskaoyan.com/thread-652587-1-1.html) 
+* 854 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658480-1-1.html)  
 
 #### 华中科技大学
 * 887 2019年 回忆版  
