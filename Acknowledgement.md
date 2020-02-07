@@ -38,6 +38,10 @@
 * 887 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652653-1-2.html) 
 
+#### 北京师范大学
+* 834 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658369-1-1.html) 
+
 #### 华东师范大学
 * 825 2019年 回忆版  
 [网址链接](http://825.malic.xyz/2019/) 
