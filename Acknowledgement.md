@@ -26,6 +26,10 @@
 * 869 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658414-1-3.html) 
 
+#### 复旦大学
+* 961 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658479-1-1.html) 
+
 #### 哈尔滨工业大学 
 * 837 2019年 回忆版  
 [@guoJohnny](https://github.com/guoJohnny)  
