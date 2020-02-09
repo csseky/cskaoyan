@@ -46,6 +46,12 @@
 * 834 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658369-1-1.html) 
 
+#### 北京理工大学
+* 813 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658382-1-1.html) 
+* 889 2020年 回忆版  
+[网址链接](https://www.cnblogs.com/xuwangzihao/p/12081845.html) 
+
 #### 华东师范大学
 * 825 2019年 回忆版  
 [网址链接](http://825.malic.xyz/2019/) 
