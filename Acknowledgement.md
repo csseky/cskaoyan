@@ -108,3 +108,10 @@
 * 813 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658364-1-1.html)  
 
+#### 中国人民大学
+* 855 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652779-1-1.html)  
+* 856 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652901-1-1.html)  
+* 856 2018年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-648661-1-1.html)  
