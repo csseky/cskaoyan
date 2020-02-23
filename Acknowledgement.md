@@ -144,3 +144,6 @@
 * 915 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658450-1-1.html)  
 
+#### 西北工业大学
+* 879 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658421-1-1.html)  
