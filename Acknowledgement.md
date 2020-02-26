@@ -153,3 +153,9 @@
 [网址链接](http://www.cskaoyan.com/thread-658459-1-1.html)  
 * 979 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658762-1-1.html)  
+
+#### 大连理工大学
+* 810 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658374-1-1.html)  
+* 887 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658371-1-1.html)  
