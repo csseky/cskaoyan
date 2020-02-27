@@ -159,3 +159,7 @@
 [网址链接](http://www.cskaoyan.com/thread-658374-1-1.html)  
 * 887 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658371-1-1.html)  
+
+#### 中国地质大学武汉
+* 830 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658441-1-1.html)  
