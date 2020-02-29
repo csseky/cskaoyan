@@ -167,3 +167,7 @@
 #### 中国石油大学华东
 * 859 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658428-1-1.html)  
+
+#### 华北电力大学北京
+* 844 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658423-1-1.html)  
