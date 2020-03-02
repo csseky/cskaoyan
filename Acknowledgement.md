@@ -171,3 +171,10 @@
 #### 华北电力大学北京
 * 844 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658423-1-1.html)  
+
+#### 苏州大学
+* 872 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658372-1-1.html)  
+* 872 2008年，2010-2019年 回忆版  
+[网址链接](http://xiaojuai.xyz/)  
+
