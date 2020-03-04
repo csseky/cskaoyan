@@ -181,3 +181,7 @@
 #### 南京航空航天大学
 * 829 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658388-1-1.html)  
+
+#### 安徽大学
+* 834 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658362-1-1.html)  
