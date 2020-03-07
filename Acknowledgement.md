@@ -191,3 +191,7 @@
 [网址链接](http://www.cskaoyan.com/thread-658391-1-1.html)  
 * 841 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658478-1-1.html)  
+
+#### 华中师范大学
+* 874 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658411-1-1.html)  
