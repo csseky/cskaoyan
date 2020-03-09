@@ -199,3 +199,9 @@
 #### 华南师范大学
 * 925 2020年 回忆版  
 [网址链接](http://cskaoyan.com/thread-658424-1-1.html)  
+
+#### 福州大学
+* 863 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652664-1-1.html)  
+* 863 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658396-1-1.html)  
