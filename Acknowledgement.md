@@ -205,3 +205,10 @@
 [网址链接](http://www.cskaoyan.com/thread-652664-1-1.html)  
 * 863 2020年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-658396-1-1.html)  
+
+#### 中国科学院大学
+* 863 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-658381-1-3.html)  
+* 863 2019年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-652643-1-4.html)  
+
