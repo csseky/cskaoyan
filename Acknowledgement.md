@@ -39,6 +39,8 @@
 [网址链接](http://www.cskaoyan.com/thread-658480-1-1.html)  
 
 #### 华中科技大学
+* 834 2020年 回忆版  
+[网址链接](http://www.cskaoyan.com/thread-659848-1-1.html) 
 * 887 2019年 回忆版  
 [网址链接](http://www.cskaoyan.com/thread-652653-1-2.html) 
 
